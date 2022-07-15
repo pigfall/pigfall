@@ -1,4 +1,3 @@
-## I am spending my best possible time at here 
 
 - Open for remote job
 - Find me at [my site](https://www.tangbe.me)
